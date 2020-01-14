@@ -1,0 +1,1 @@
+# Mobilny-vCard-P-
